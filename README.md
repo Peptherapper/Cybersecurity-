@@ -1,1 +1,2 @@
 # Cybersecurity-
+With a strong background in Computer Science from Delta State Polytechnic Nigeria, I am excited to launch my career in cybersecurity. My interests in content creation, graphics, and technology have prepared me to tackle the challenges of this field. While I am new to cybersecurity, my certification and passion for technology position me well for an entry-level role. I am eager to apply my skills, learn from experienced professionals, and contribute to the security and innovation of digital assets.
